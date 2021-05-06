@@ -3,7 +3,7 @@
 
 **Profesor:** John Jairo Corredor
 
-**Estudiante:** Ruben Alexis Nuñez Montaña (ruben.nunez01@correo.usa.edu.co / 320-441-0327)
+**Estudiante:** Ruben Alexis Nuñez Montaña (ruben.nunez01@correo.usa.edu.co)
 
 
 
